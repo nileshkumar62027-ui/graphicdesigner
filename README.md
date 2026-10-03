@@ -73,7 +73,7 @@ Clean, easy-to-scan catalogues that present products, details and sizes in a pol
 
 [Motion poster ↗](https://drive.google.com/drive/folders/1z6aD7ws1Gx8o7BnGMcA_BYVU55B-T5Sm?usp=drive_link)
 
-Short animated posters that bring event and festival announcements to life on social media.
+Animated posters that bring event and festival announcements to life on social media.
 
 07
 
